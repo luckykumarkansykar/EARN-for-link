@@ -1,1 +1,1 @@
-# EARN-for-link
+# EARN for link
